@@ -1,5 +1,5 @@
 # 💫 About Me:
-I like to mod fortnite (I automatically dont have a life) 🥰
+Learning UE slowly
 
 
 ## 🌐 Socials:
